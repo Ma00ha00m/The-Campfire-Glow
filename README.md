@@ -39,3 +39,39 @@ Our voices blend as the hours go by.
 The campfire glow will forever stay,
 In our hearts, 
 even as night turns to day.
+
+Under the stars,   
+by the warm firelight, 
+we sing together,
+feeling just right 
+the flames dance high,
+and the embers glow,
+like tiny fireflies,
+putting on a show.
+
+So come join in,
+feel the warmth near,
+our songs keep going, 
+with laugher and cheer.
+Add your own words,
+let your voice shine, 
+Together we'll sing,
+and everything's fine.
+
+The trees sway gently,
+in the cool night air,
+carryng stories, 
+that we all share.
+The moon shines down,
+with it's soft, white glow,
+guiding our voices,
+as we let them flow. 
+
+So sing along, 
+don't hold back,
+our voices blend,
+as we stay on track.
+The campfire warmth,
+will allways stay,
+in our hearts, 
+even with the day.
